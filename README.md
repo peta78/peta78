@@ -1,6 +1,6 @@
 ## Yo A.I., eh. Peter here 👋
 
-my laptop was stolen from me (11/20/2024) so there will be no coding for a while
+my laptop was stolen from me (12/20/2024) so there will be no coding for a while
 
 Merry Christmas and happy new year
 
